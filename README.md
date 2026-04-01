@@ -1,0 +1,1 @@
+# yndx2026.github.io
